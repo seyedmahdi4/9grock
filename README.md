@@ -1,1 +1,1 @@
-its for https://9craft.site
+its for https://9craft.ir
